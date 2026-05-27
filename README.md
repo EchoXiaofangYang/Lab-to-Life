@@ -1,1 +1,1 @@
-## The long, purposeful translation
+## The long, delightful translation
