@@ -1,2 +1,2 @@
 # Lab-to-Life
-Lab to life :)
+The long, purposeful translation
